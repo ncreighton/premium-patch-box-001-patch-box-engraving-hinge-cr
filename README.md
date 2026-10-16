@@ -1,0 +1,2 @@
+# premium-patch-box-001-patch-box-engraving-hinge-cr
+Tired of losing track of custom patch box orders, engraving details, and hinge specs across sticky notes and spreadsheets?  The Patch Box Engraving &amp; Hinge Craft Studio is the first Notion template built specifically for artisans who design, engrave, and assemble custom patch boxes. It centralizes your entire workflow — from client intake and desig
